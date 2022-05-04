@@ -2,7 +2,7 @@
 
 
 
-## Retweet to prevent others from being scammed, thanks!
+## Share twitter to prevent others from being scammed, thanks!
 
 https://twitter.com/CT_Hellcat/status/1521682600787468288
 
