@@ -43,5 +43,11 @@ Zer0Day Lab Eth Wallet Address: **0xA795b1290e5e754a079Ba79c0C4b7f984BB45E57**
 **Although 200$ dollars is not much, but I want to say Fuck You Zer0Day Lab!**
 
 
+## Other reference links：
+
+CORE IMPACT 21.1 CRACK [ZER0DAY LAB ARE SCAMMERS]
+
+https://cracked.io/Thread-Supreme-CORE-IMPACT-21-1-CRACK-zer0day-lab-are-scammers
+
 
 
