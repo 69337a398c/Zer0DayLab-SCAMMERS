@@ -1,5 +1,15 @@
 # Zer0Day Are Scammers (CobaltStrike 4.6.0)
 
+
+
+## Retweet to prevent others from being scammed, thanks!
+
+https://twitter.com/CT_Hellcat/status/1521682600787468288
+
+![](https://tva1.sinaimg.cn/large/e6c9d24egy1h1w6nhg1efj20w80u0jvd.jpg)
+
+## zer0daylab
+
 https://t.me/zer0daylab
 
 ![](https://tva1.sinaimg.cn/large/e6c9d24egy1h1w6fcp9qoj214i0u0abp.jpg)
@@ -29,4 +39,7 @@ All Darkside Users Can Download It Free
 ![](https://tva1.sinaimg.cn/large/e6c9d24egy1h1w61s55yjj20n05xve5h.jpg)
 
 **Although 200$ dollars is not much, but I want to say Fuck You Zer0Day Lab!**
+
+
+
 
