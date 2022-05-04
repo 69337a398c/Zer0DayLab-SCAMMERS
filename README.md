@@ -36,6 +36,8 @@ All Darkside Users Can Download It Free
 
 ## Chat History and Transfer History
 
+Zer0Day Lab Eth Wallet Address: **0xA795b1290e5e754a079Ba79c0C4b7f984BB45E57**
+
 ![](https://tva1.sinaimg.cn/large/e6c9d24egy1h1w61s55yjj20n05xve5h.jpg)
 
 **Although 200$ dollars is not much, but I want to say Fuck You Zer0Day Lab!**
