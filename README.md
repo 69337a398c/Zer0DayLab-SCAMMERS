@@ -1,5 +1,6 @@
 # Zer0Day Are Scammers (CobaltStrike 4.6.0)
 
+**⚠️ Don't buy anything from Zer0Day Lab channels, its a warning before you get scam!**
 
 
 ## Share twitter to prevent others from being scammed, thanks!
